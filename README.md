@@ -1,1 +1,1 @@
-happy mining
+Happy Mining
